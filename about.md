@@ -19,11 +19,18 @@ Shortly afterwards Andrea and Josh became a couple. They continued to bond by le
 
 Their blossoming relationship revolved around outdoor adventures, and their shared community service projects. Josh took charge of fixing up and reopening the outing club's remote cabin in New Hampshire. Andrea took charge of organizing and improving the club's gear library.
 
-Once they got the cabin up and running nicely, they spent every weekend there. From this home base they went on dozens of hikes and volunteered as leaders for beginner hikers and climbers.
-
 ![](img/IMG_6601.jpeg)
 
-![](img/20220220_152621.jpg)
+Once they got the cabin up and running nicely, they spent every weekend there. From this home base they went on dozens of hikes and volunteered as leaders for beginner hikers and climbers.
+
+
+![](img/20220623_130751.jpeg)
+
+![](img/20220625_074642.jpeg)
+
+![](img/20220625_083042.jpeg)
+
+![](img/20220625_134538.jpeg)
 
 On Andrea's spring break from MIT Josh and Andrea went on their first trip as a couple. They went desert tower climbing in Arizona.
 
@@ -35,15 +42,7 @@ Towards the end of the trip they swung by the Grand Canyon and hiked to the bott
 
 Since then Andrea and Josh have been fortunate to go on several larger adventures beyond New England with friends from the MIT outing club. One of their more notable adventures involved climbing minor summits on France's Mont Blanc Massif with a few close friends.
 
-![](img/20220623_130751.jpeg)
-
-![](img/20220625_074642.jpeg)
-
-![](img/20220625_083042.jpeg)
-
 ![](img/PXL_20220625_065426182.jpeg)
-
-![](img/20220625_134538.jpeg)
 
 ![](img/PXL_20220702_124337665.jpeg)
 
@@ -60,18 +59,6 @@ For Andrea's birthday in 2022 Josh and Andrea travelled to Acadia National Park 
 ![](img/PXL_20220903_212341362.MP.jpeg)
 
 In the year that followed they spent a lot of time going on more beautiful hiking and climbing adventures with the MIT outing club, to New Hampshire, Vermont and Maine and they continued to volunteer as leaders and organizers.
-
-![](img/IMG_3423.jpeg)
-
-![](img/20230121_142735.jpeg)
-
-![](img/20230121_142009.jpeg)
-
-![](img/20230121_134246.jpeg)
-
-![](img/original_fa133f52-bb6a-4780-a1dc-ad9bcd28fb5c_PXL_20220820_180956722.jpeg)
-
-![](img/PXL_20230122_160838316.jpeg)
 
 Josh got to know Andrea's family
 
