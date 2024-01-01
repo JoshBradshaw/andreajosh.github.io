@@ -27,7 +27,7 @@ On Andrea's spring break from MIT Josh and Andrea went on their first trip as a 
 
 ![](img/PXL_20220323_190500134.jpeg)
 
-After climbing a few towers they swung by Arizona to hike to the bottom the Grand Canyon.
+Towards the end of the trip they swung by the Grand Canyon and hiked to the bottom.
 
 ![](img/PXL_20220321_190837159.MP.jpeg)
 
