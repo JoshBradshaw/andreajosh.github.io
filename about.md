@@ -3,13 +3,15 @@ layout: page
 title: Andrea and Josh's Story
 ---
 
-Andrea and Josh met on an MIT outing club trip to Mount Adams and Mount Madison in New Hampshire's presidential mountain range. Josh was the community volunteer leader on the trip, and Andrea was a participant. Andrea and Josh hit it off while traversing between summits on an unusually beautiful winter day. Here's a summit photo from that trip:
+Andrea and Josh met on an MIT outing club trip to Mount Adams and Mount Madison in New Hampshire's presidential mountain range. Josh was the community volunteer leader on the trip, and Andrea was a participant. 
+
+Andrea and Josh hit it off while traversing between summits on an unusually beautiful winter day. Here's a summit photo from that trip:
 
 ![](img/PXL_20220116_184854065.jpeg)
 
 Josh had gone skiing with a different group of friends the day before, so he had driven his car to the trailhead alone. Josh wanted to spend more time with Andrea after the hike, but he worried that asking her to join him for dinner, plus the three-hour drive home would be too intense for a first date. Josh craftily worked around this problem by asking the entire group whether anyone would like to keep him company on the drive home. Andrea took him up on the offer. A few other people did too, but Josh told them that his car was too full of skis and that the available seat had already been spoken for.
 
-From that point onwards, Andrea and Josh spent every weekend together going on winter adventures in New Hampshire.
+From that point onwards, Andrea and Josh spent every weekend together going on several wintery adventures in New Hampshire.
 
 ![](img/PXL_20220122_171533710.jpeg)
 
