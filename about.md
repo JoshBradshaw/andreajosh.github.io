@@ -11,28 +11,15 @@ Andrea and Josh hit it off while traversing between summits on an unusually beau
 
 Josh had gone skiing with a different group of friends the day before, so he had driven his car to the trailhead alone. Josh wanted to spend more time with Andrea after the hike, but he worried that asking her to join him for dinner, plus the three-hour drive home would be too intense for a first date. Josh craftily worked around this problem by asking the entire group whether anyone would like to keep him company on the drive home. Andrea took him up on the offer. A few other people did too, but Josh told them that his car was too full of skis and that the available seat had already been spoken for.
 
-From that point onwards, Andrea and Josh spent every weekend together going on several wintery adventures in New Hampshire.
-
-![](img/PXL_20220122_171533710.jpeg)
-
-Shortly afterwards Andrea and Josh became a couple. They continued to bond by leading numerous hikes together with the MIT outing club. 
-
-Their blossoming relationship revolved around outdoor adventures, and their shared community service projects. Josh took charge of fixing up and reopening the outing club's remote cabin in New Hampshire. Andrea took charge of organizing and improving the club's gear library.
+From that point onwards, Andrea and Josh spent every weekend together. Their blossoming relationship revolved around outdoor adventures, and their shared community service projects. Josh took charge of fixing up and reopening the outing club's remote cabin in New Hampshire. Andrea took charge of organizing and improving the club's gear library.
 
 ![](img/IMG_6601.jpeg)
 
+![](img/20221210_121955.jpeg)
+
 Once they got the cabin up and running nicely, they spent every weekend there. From this home base they went on dozens of hikes and volunteered as leaders for beginner hikers and climbers.
 
-
-![](img/20220623_130751.jpeg)
-
-![](img/20220625_074642.jpeg)
-
-![](img/20220625_083042.jpeg)
-
-![](img/20220625_134538.jpeg)
-
-On Andrea's spring break from MIT Josh and Andrea went on their first trip as a couple. They went desert tower climbing in Arizona.
+On Andrea's spring break from MIT Josh and Andrea went on their first long distance trip as a couple. They went desert tower climbing in Arizona.
 
 ![](img/PXL_20220323_190500134.jpeg)
 
@@ -41,6 +28,14 @@ Towards the end of the trip they swung by the Grand Canyon and hiked to the bott
 ![](img/PXL_20220321_190837159.MP.jpeg)
 
 Since then Andrea and Josh have been fortunate to go on several larger adventures beyond New England with friends from the MIT outing club. One of their more notable adventures involved climbing minor summits on France's Mont Blanc Massif with a few close friends.
+
+![](img/20220623_130751.jpeg)
+
+![](img/20220625_074642.jpeg)
+
+![](img/20220625_083042.jpeg)
+
+![](img/20220625_134538.jpeg)
 
 ![](img/PXL_20220625_065426182.jpeg)
 
